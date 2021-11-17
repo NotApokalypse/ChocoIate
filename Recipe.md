@@ -1,0 +1,1 @@
+The seeds of the cacao tree have a bitter taste and must first be fermented to develop flavor. After fermentation the beans are dried, cleaned and then roasted. The shell of the cacoa bean is removed to produce cacao nibs. The nibs are then ground to produce cocao mass or pure chocolate in a rough form.

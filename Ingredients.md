@@ -1,0 +1,1 @@
+A good chocolate should have no more than around 4 ingredients. Cocoa beans, cocoa butter, sugar, milk powder or alternative mylk (if it's a milk chocolate), and sometimes the addition of an emulsifier. Good chocolate is a superfood.
